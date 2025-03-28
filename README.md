@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python and Java
 - 💞️ I’m looking to collaborate with the AI`s here
 -    and perhaps find more help when needed
-- 📫 How to reach me: sza
+- 📫 How to reach me: sza0933 on discord
 - 😄 Pronouns: he
 - ⚡ Fun fact: I`m 14
 
